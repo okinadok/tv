@@ -1,0 +1,109 @@
+成人电视,#genre#
+直播 720,http://cdn.adultiptv.net/livecams.m3u8
+巨尻 720,http://cdn.adultiptv.net/bigass.m3u8
+大鸟 720,http://cdn.adultiptv.net/bigdick.m3u8
+金发 720,http://cdn.adultiptv.net/blonde.m3u8
+口交 720,http://cdn.adultiptv.net/blowjob.m3u8
+褐发 720,http://cdn.adultiptv.net/brunette.m3u8
+合集 720,http://cdn.adultiptv.net/compilation.m3u8
+绿帽 720,http://cdn.adultiptv.net/cuckold.m3u8
+恋物 720,http://cdn.adultiptv.net/fetish.m3u8
+群交 720,http://cdn.adultiptv.net/gangbang.m3u8
+硬核 720,http://cdn.adultiptv.net/hardcore.m3u8
+异种 720,http://cdn.adultiptv.net/interracial.m3u8
+拉丁 720,http://cdn.adultiptv.net/latina.m3u8
+少妇 720,http://cdn.adultiptv.net/milf.m3u8
+第一视角 720,http://cdn.adultiptv.net/pov.m3u8
+粗暴 720,http://cdn.adultiptv.net/rough.m3u8
+俄罗斯 720,http://cdn.adultiptv.net/russian.m3u8
+欧美2,http://live.redtraffic.xyz/threesome.m3u8?fluxuslust.m3u8
+欧美3,http://live.redtraffic.xyz/teen.m3u8?fluxuslust.m3u8
+欧美4,http://live.redtraffic.xyz/pornstar.m3u8?fluxuslust.m3u8
+欧美5,http://live.redtraffic.xyz/pov.m3u8?fluxuslust.m3u8
+欧美6,http://live.redtraffic.xyz/milf.m3u8?fluxuslust.m3u8
+欧美7,http://live.redtraffic.xyz/lesbian.m3u8?fluxuslust.m3u8
+欧美8,http://live.redtraffic.xyz/latina.m3u8?fluxuslust.m3u8
+欧美9,http://live.redtraffic.xyz/fetish.m3u8?fluxuslust.m3u8
+欧美10,http://live.redtraffic.xyz/blowjob.m3u8?fluxuslust.m3u8
+欧美11,http://live.redtraffic.xyz/bigdick.m3u8?fluxuslust.m3u8
+欧美12,http://live.redtraffic.xyz/bigass.m3u8?fluxuslust.m3u8
+歐美高清10,http://live.redtraffic.xyz/bigass.m3u8fluxuslust.m3u8
+直播·大屁股,http://live.redtraffic.xyz/bigass.m3u8
+直播·大鸡吧,http://live.redtraffic.xyz:80/bigdick.m3u8
+直播·大鸡吧,http://live.redtraffic.xyz/bigdick.m3u8
+二本道,http://video1.rhsj520.com:8091/nyrm3/heyzo337/heyzo_hd_0431_full/1500kb/hls/index.m3u8
+一本道,http://video1.rhsj520.com:8091/nyrm3/20180105/3/050313-328/1500kb/hls/index.m3u8
+MyCamTV Teen Girls,http://live.mycamtv.com/teen.m3u8
+MyCamTV MILF,http://live.mycamtv.com/milf.m3u8
+MyCamTV Young Girls,http://live.mycamtv.com/young.m3u8
+MyCamTV Mature,http://live.mycamtv.com/bigtits.m3u8
+MyCamTV Arab Girls,http://live.mycamtv.com/arab.m3u8
+MyCamTV Ebony Girls,http://live.mycamtv.com/ebony.m3u8
+MyCamTV Asian Girls,http://live.mycamtv.com/asian.m3u8
+MyCamTV Brunette Girls,http://live.mycamtv.com/brunette.m3u8
+MyCamTV Latina Girls,http://live.mycamtv.com/latina.m3u8
+MyCamTV White Girls,http://live.mycamtv.com/white.m3u8
+MyCamTV Blonde Girls,http://live.mycamtv.com/blonde.m3u8
+MyCamTV Anal,http://live.mycamtv.com/anal.m3u8
+MyCamTV Big Ass Girls,http://live.mycamtv.com/bigass.m3u8
+MyCamTV Girls Squirt,http://live.mycamtv.com/squirt.m3u8
+MyCamTV Skinny Girls,http://live.mycamtv.com/skinny.m3u8
+MyCamTV Medium Girls,http://live.mycamtv.com/medium.m3u8
+MyCamTV Blowjob,http://live.mycamtv.com/blowjob.m3u8
+AdultIPTV.net Asian,http://cdn.adultiptv.net/asian.m3u8
+RedTraffic Hardcore,http://live.redtraffic.xyz/hardcore.m3u8
+RedTraffic Interracial,http://live.redtraffic.xyz/interracial.m3u8
+RedTraffic Latina,http://live.redtraffic.xyz/latina.m3u8
+RedTraffic Lesbian,http://live.redtraffic.xyz/lesbian.m3u8
+RedTraffic Milf,http://live.redtraffic.xyz/milf.m3u8
+RedTraffic Pornstar,http://live.redtraffic.xyz/pornstar.m3u8
+RedTraffic POV,http://live.redtraffic.xyz/pov.m3u8
+RedTraffic Russian,http://live.redtraffic.xyz/russian.m3u8
+RedTraffic Teen,http://live.redtraffic.xyz/teen.m3u8
+RedTraffic Threesome,http://live.redtraffic.xyz/threesome.m3u8
+RedTraffic Cuckold,http://live.redtraffic.xyz/cuckold.m3u8
+RedTraffic Fetish,http://live.redtraffic.xyz/fetish.m3u8
+blowjob,http://live.redtraffic.xyz/blowjob.m3u8
+二本道欧美版,http://live.redtraffic.xyz:80/blowjob.m3u8
+粉紅台歐美版,http://live.redtraffic.xyz:80/teen.m3u8
+BBW,http://cdn.adultiptv.net/smoking.m3u8
+Visit-X TV,http://stream.visit-x.tv:1935/vxtv/live_720p/playlist.m3u8
+Visit-X TV (Opt-1),http://stream.visit-x.tv/vxtv/live/playlist.m3u8?fluxuslust.m3u8
+Visit-X TV (Opt-2),http://stream.visit-x.tv:1935/vxtv/live_720p/playlist.m3u8?fluxuslust.m3u8
+Big Tits,http://live.redtraffic.xyz/bigtits.m3u8?fluxuslust.m3u8
+Cuckold,http://live.redtraffic.xyz/cuckold.m3u8?fluxuslust.m3u8
+Hardcore,http://live.redtraffic.xyz/hardcore.m3u8?fluxuslust.m3u8
+Interracial,http://live.redtraffic.xyz/interracial.m3u8?fluxuslust.m3u8
+Russian,http://live.redtraffic.xyz/russian.m3u8?fluxuslust.m3u8
+adultiptv_massage,http://cdn.adultiptv.net/massage.m3u8
+adultiptv_japanese,http://cdn.adultiptv.net/japanese.m3u8
+adultiptv_chinese,http://cdn.adultiptv.net/chinese.m3u8
+redtraffic_vintage,http://live.redtraffic.xyz/vintage.m3u8
+redtraffic_bdsm,http://live.redtraffic.xyz/bdsm.m3u8
+redtraffic_asian,http://live.redtraffic.xyz/asian.m3u8
+redtraffic_ama,http://live.redtraffic.xyz/ama.m3u8
+redtraffic_cohf,http://live.redtraffic.xyz/cohf.m3u8
+miamitv_fluxus,http://59ec5453559f0.streamlock.net/mexicotv/smil:miamitvmexico/chunklist_b1896000.m3u8?fluxuslust.m3u8
+LTV X Art 2 18+,http://epsilon-c1.liux.tv/adl-x-art2/mono.m3u8?token=73af6878-25e2-4699-b033-32a67053cace
+Visit-X TV (18+),http://194.116.150.47:1935/vxtv/live_360p/playlist.m3u8
+Visit-X TV HD (18+),http://194.116.150.47:1935/vxtv/live_720p/playlist.m3u8
+D��D��D???D? HD (18+),http://9d8c5662.suklakakl.site/iptv/XPMTTGZETTGURA/922/index.m3u8
+
+日韩系列,#genre#
+抜14発中出  武井麻希,http://videocdn.quweikm.com:8091/20180730/SERO-0205c/index.m3u8
+媚薬授業中  西川りおん,http://videocdn.quweikm.com:8091/20180730/SERO-0234c/index.m3u8
+真正中出解禁 浜崎真緒,http://videocdn.quweikm.com:8091/20180730/SDMU-171c/index.m3u8
+
+欧美激情,#genre#
+Полные волосатые Дамы/Con Il Pelo Pieno di Sborra,https://video1.tizam.cc/files/2433498/con_il_pelo_pieno_di_sborra.mp4
+Один день с тетёй Пастина / Un pomeriggio con la zia Pastina - 2018,https://video1.tizam.cc/files/2526109/un_pomeriggio_con_la_zia_pastina.mp4
+Женщина для всех / Una bambola per Tutti 2017,https://video1.tizam.cc/files/2546911/una_bambola_per_tutti.mp4
+Женская похоть,https://video1.tizam.cc/vk/AWomansLust1983.mp4
+Корабль секса / Sexboat (1980,https://video1.tizam.cc/vk/Sexboat.mp4
+
+日韩无码,#genre#
+加勒比720P28,https://video1.rhsj520.com/nyrm3/jlb201902/101912-161/1500kb/hls/index.m3u8
+HEYZO720P44,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1946_full/1500kb/hls/index.m3u8
+HEYZO720P34,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1965_full/1500kb/hls/index.m3u8
+HEYZO720P35,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1970_full/1500kb/hls/index.m3u8
+HEYZO720P37,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1980_full/1500kb/hls/index.m3u8
